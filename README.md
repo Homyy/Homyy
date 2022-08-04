@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Homyy
-- 👀 I’m interested in I’m interested in informatic, football and video game
+- 👀 I’m interested in informatic, football and video game
 - 🌱 I’m currently learning programmation informatic.
 - 📫 How to reach me : homy.xm@gmail.com
 
